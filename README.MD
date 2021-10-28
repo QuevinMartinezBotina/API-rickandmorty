@@ -12,4 +12,4 @@
 
 ---
 
-⚡Simepre la mejor energía⚡
+⚡Siempre la mejor energía⚡
